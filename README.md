@@ -18,7 +18,7 @@ Driven cybersecurity professional with hands-on SOC lab experience in threat det
 
 ## Resume
 You can view or download my resume here:  
-[Raeesah_Hernandez_Resume.pdf](./Raeesah_Hernandez_Resume.pdf)  
+[Resume16.docx.pdf](./Resume16.docx.pdf)
 
 ---
 
